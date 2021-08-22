@@ -21,6 +21,8 @@ and now invite your bot to the server if u dont know how to do it watch youtube 
 when that is done type !nuke in the chat and !stop for stop and btw you need to set the bot
 on the highest role in the discord if you want to ban all in the discord 
 
+////edit do not forget to change your bots bio --- BOTS_DESCRIPTION
+
 thank me later bby /VolvoRaggarN#4494
 
 
