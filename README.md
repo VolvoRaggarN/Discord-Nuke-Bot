@@ -25,5 +25,5 @@ on the highest role in the discord if you want to ban all in the discord
 
 thank me later bby /VolvoRaggarN#4494
 
-Youtube video - https://youtu.be/nkDFFhjf9hU sorry for bad quality on the video
+Youtube Easy Tutorial - https://youtu.be/254oplzJ3co
 
